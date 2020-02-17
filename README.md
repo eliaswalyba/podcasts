@@ -12,7 +12,7 @@ Here you have all of them:
 
 ## The ones I currently listen to
 
-- 99 percent visible
+- 99 percent Invisible
 - GCP Podcast (duh)
 - GoTime
 - Reply All
